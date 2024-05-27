@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nwtsx
+- 👀 I’m interested in learning code (im a biginner)
+- 📫 You can reach me by my discord: Jasv.a
+- 😄 Pronouns: he/him
